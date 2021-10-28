@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SacredCow
+- 👀 I’m interested in ... SWEM Minecraft mod!
+- 🌱 I’m currently learning ... The works of being a Beta Tester
+- 📫 How to reach me ... SacredCow#9404 on Discord!
